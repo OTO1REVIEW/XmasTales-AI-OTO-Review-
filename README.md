@@ -1,4 +1,4 @@
-# XmasTales-AI OTO Review
+# XmasTales AI OTO Review
 Create UNLIMITED YouTube Kids Story Videos In Minutes That Attract MILLIONS Of Views, Subscribers &amp; Commissions... WITHOUT ANY Skills Or Creativity.
 [Unlock the Power of XmasTales AI by Yogesh Agarwal](https://warriorplus.com/o2/a/vpkc338/0): Create Kids' Story Videos That Earn $567/Day!
 
